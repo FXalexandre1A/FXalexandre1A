@@ -1,2 +1,2 @@
 ## SEJAM TODOS BEM VINDOS👋
-<div class="tenor-gif-embed" data-postid="21809410" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/fat-boy-exercising-fat-belly-fatty-obese-fat-gainer-gif-21809410">Fat Boy Exercising Fat Belly GIF</a>from <a href="https://tenor.com/search/fat+boy+exercising-gifs">Fat Boy Exercising GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+https://tenor.com/pt-BR/view/fat-boy-exercising-fat-belly-fatty-obese-fat-gainer-gif-21809410
